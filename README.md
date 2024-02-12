@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploring and trying out new things
 - 🌱 I’m currently learning Java script 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ajayiolaide95@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
